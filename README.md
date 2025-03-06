@@ -25,7 +25,8 @@ This are softwares that allows yoyu to flash cryptocurrencies in any network
   💸Android mobile Flashing Apps
 
 ☎️  💡🔠🔠🔠🔠🔠🔠🔠
-  🗣️📱🔠🔠🔠🔠🔠🔠🔠🗣️:- @Czarbit ✅
+ #  🗣️📱🔠🔠🔠🔠🔠🔠🔠🗣️:- [Czarbit](https://t.me/czarbit) ✅
+ 
 
 💎        [Czarbit](https://t.me/czarbit)        💎
 🛍Discounted prices:
