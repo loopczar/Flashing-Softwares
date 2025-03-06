@@ -43,7 +43,7 @@ This are softwares that allows yoyu to flash cryptocurrencies in any network
 # 🔔 [PUBLIC CHANNEL](https://t.me/crypto_flashing_hub)
 
 
-# 💎 FLASHER BOT (https://t.me/USDTFlasherBot)
+# 💎 [FLASHER BOT](https://t.me/USDTFlasherBot)
 
 
 
